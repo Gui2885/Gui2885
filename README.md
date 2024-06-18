@@ -6,5 +6,5 @@ Meu nome é Guilherme Ferreira ⚓
 
 ## Vocẽ pode entrar em contato comigo!💻
 00001080881074sp@al.educacao.sp.gov.br
-![](link)
-file:///home/chronos/u-f455efae010e739539203d6a76382ce726963b5c/MyFiles/Downloads/b42c43919876bd77dd09ae7f97eeba55fe6d7ebe_original.jpeg
+![](https://media1.tenor.com/m/MhxdYt9jHnEAAAAC/tokyo-ghoul-ken-kaneki.gif)
+
